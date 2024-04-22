@@ -7,15 +7,9 @@
 
 - 🤝 I’m looking for help with **FrontEnd Development.**
 
-- 📝 I regularly write poetry on [https://www.instagram.com/story_poetry_01/](https://www.instagram.com/story_poetry_01/)
-
 - 💬 Ask me about **Kali Linux**
 
 - 📫 How to reach me **kumarmahtoaman65@gmail.com**
-
-- 📄 Know about my experiences [https://drive.google.com/drive/folders/11Jsk-bvUR_hqPw5x18e2dfx0F2G37ltl](https://drive.google.com/drive/folders/11Jsk-bvUR_hqPw5x18e2dfx0F2G37ltl)
-
-- ⚡ Fun fact **I am also a Photographer.**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
